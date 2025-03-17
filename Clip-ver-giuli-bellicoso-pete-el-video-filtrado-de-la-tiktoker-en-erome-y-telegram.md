@@ -1,12 +1,12 @@
 Giuli Bellicoso pete: el video filtrado de la tiktoker en Erome y Telegram
 Descubre lo que sucede en torno a la filtración de Giuli Bellicoso haciendo pete, ¿se puede ver el video viral?, te damos los detalles.
 
-Imagen de Giuli Bellicoso pete: el video filtrado de la tiktoker en Erome y Telegram
-Giuli Bellicoso está en el ojo del huracán tras la filtración de un video íntimo. - Diseño: Tunota
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-En las últimas horas, el nombre de Giuli Bellicoso ha causado innumerables reacciones en las plataformas sociales, esto después de ser relacionada a un clip íntimo filtrado en la plataforma de Erome y X (antes Twitter) y aunque la creadora de contenido afirmo que no es la actora del clip continúa siendo un tema en tendencia.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-Tras la divulgación del clip, Giuli decido abordar la situación y emitir un comunicado en sus historias de Instagram, manifestado que lamenta decepcionar a sus seguidores, pero no es la del video, además aclaro que es menor de edad y que la situación que está pasando es nefasta.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 "Y para los vivos que dicen "Vendo el video de Giuli" y los otros que lo compran están siendo estafados que decirles jajajaj", escribió Bellicoso. La creadora de contenido también agradeció a todo los que se preocuparon por ella y por los que de entrada sabían que no era ella.
 
